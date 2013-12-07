@@ -3,7 +3,7 @@
 * 1/2 cup packed dark brown sugar
 * 1/3 cup white sugar
 * 1/2 teaspoon salt
-* 2 eggs plus the yolk of a third egg
+* 2 eggs plus the whites of a third egg
 * 2 teaspoons of cinnamon
 * 1 teaspoon ground ginger
 * 1/4 teaspoon ground nutmeg
